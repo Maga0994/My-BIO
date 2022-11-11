@@ -18,6 +18,10 @@
 
 [Instagram](https://www.instagram.com/l4rs6t)
 
+
+[e-mail](l4rs6t@gmail.com)
+
+
 ## Любимая группа 
 
 - Bring Me The Horizon
